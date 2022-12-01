@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JYK917
-- 👀 I’m interested in makeing Programs
+- 👀 I’m interested in making Programs
 - 🌱 I’m currently learning Language java or python etc..
 - 📫 My first Acount is @Jhon-rjf but i can't sign in. So I maked this Acoount
 - 영어로 쓰려니까 너무 어렵다 
